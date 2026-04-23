@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @LikeableSlinky
-- 👀 I’m interested in Retro Gaming
-- 🌱 I’m currently learning Obtainium
+- 👀 I’m interested in Retro Gaming, Obtainium, Stack Chan + Whatever brings me here.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - 😄 Pronouns: ...
